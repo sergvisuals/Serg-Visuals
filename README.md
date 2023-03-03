@@ -1,1 +1,1 @@
-# sergvisuals.github.io
+# sergvisuals.io
